@@ -5,5 +5,5 @@
 - 📫 You can track me via mail ekn2526@gmail.com
 - 😄 Pronouns: He, Him, His lol🤣
 - ⚡ Fun fact: I believe in God almighty creator of the universe because  there has got
--    to be an explanation for everything  we see 
+-    to be an explanation for everything  we see and Jesus is the answer.
 
